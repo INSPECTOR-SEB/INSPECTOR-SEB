@@ -25,11 +25,9 @@
 [ᴀᴛᴀ](https://fishjam.atabook.org/) ⋆ [ꜱᴛʀᴀᴡ](https://fishjam.straw.page/) ⋆ [ɢᴜɴꜱ](https://guns.lol/fishjam) 
 
 
-<img width="99" height="57" alt="tumblr_48ff243f6585bb424893cb9c796b7d34_ad2f0377_100" src="https://github.com/user-attachments/assets/f078cd14-4c58-41ac-9834-7ea1145ee2cc" />
 <img width="110" height="70" alt="tumblr_6a9ef1373a1089129da442e87a08b36c_e855af47_100" src="https://github.com/user-attachments/assets/05e08cf1-ffdc-432c-b2e8-55fc9308af5c" />
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=313ul5mqdwdfls3e35cwntp2lfvu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
 <img width="110" height="70" alt="tumblr_3dfb24302b9f15d5b088d585d91f8f27_f79af26f_100" src="https://github.com/user-attachments/assets/508492a2-0ce2-4c2d-a44d-6f7e802ea4e9" />
-<img width="99" height="57" alt="tumblr_4db53fe7522c1adfff14e3d12981e322_f33544c1_100" src="https://github.com/user-attachments/assets/3a5e79b8-caec-4b22-84cb-8a3ad8cb7eaa" />
 
 
 
