@@ -1,17 +1,15 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=3531&pause=1000&color=A92626&width=523&lines=The+marks+I+left+on+track+stays;Until+time+and+rain+wash+them+away.&groups=1%2C1)](https://git.io/typing-svg)
-<div align="right"> 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=3531&pause=1000&color=A92626&width=523&height=27&lines=The+marks+I+left+on+track+stays;Until+time+and+rain+wash+them+away.&groups=1%2C1)](https://git.io/typing-svg)<div align="right"> 
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=3531&pause=1000&color=383DE4&width=500&lines=Tomorrow+belongs+to+those+;Who+shapes+today.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=3531&pause=1000&color=383DE4&width=523&height=27&lines=Tomorrow+belongs+to+those+;Who+shapes+today.)](https://git.io/typing-svg)
 <div align="center">  
   
 <img width="1421" height="487" alt="HRq4nTKaUAA3EUZ" src="Screenshot 2026-10-31 at 17.02.15.png" />
 <div align="right">  
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=3531&pause=1000&color=BE6121&width=435&lines=The+next+corner+is+in+good+hands;New+generation+has+already+turned+in)](https://git.io/typing-svg) &emsp;&emsp;&emsp;&emsp;
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=3531&pause=1000&color=BE6121&width=523&height=27&lines=The+next+corner+is+in+good+hands;New+generation+has+already+turned+in)](https://git.io/typing-svg)
 <div align="left"> 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=3531&pause=1000&color=A92626&width=435&lines=I+believe.+.+.;There+is+still+a+race+to+win.)](https://git.io/typing-svg)
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=3531&pause=1000&color=A92626&width=523&height=27&lines=I+believe.+.+.;There+is+still+a+race+to+win.)](https://git.io/typing-svg)
 
 
 
