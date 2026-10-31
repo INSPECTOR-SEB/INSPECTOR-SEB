@@ -1,4 +1,12 @@
+&nbsp;&nbsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3531&pause=1000&color=A92626&width=435&lines=The+marks+I+left+on+track+stays;Until+time+and+rain+wash+them+away.&groups=1%2C1)](https://git.io/typing-svg)
+&emsp;&emsp;&emsp;[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3531&pause=1000&color=A92626&width=435&lines=The+next+corner+is+in+good+hands;New+generation+has+already+turned+in)](https://git.io/typing-svg)
+<div align="center">  
+  
+<img width="240" height="320" alt="HRq4nTKaUAA3EUZ" src="0f689ac12fbef5fa2c432a8c6da54775.jpg" /> <img width="240" height="320" alt="HRq4nTKaUAA3EUZ" src="16e2a5c9acd4983f4a6e2ded915e18dd.jpg" /> <img width="240" height="320" alt="HRq4nTKaUAA3EUZ" src="4a867ab7eb5364cacce5fb48e592212f.jpg" /> <img width="240" height="320" alt="HRq4nTKaUAA3EUZ" src="e20de93d0c651e3a087000e4548e15d3.jpg" />
+<div align="left">  
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3531&pause=1000&color=A92626&width=435&lines=Tomorrow+belongs+to+those+;Who+shapes+today.)](https://git.io/typing-svg)
+&emsp;&emsp;&emsp;&ensp;&ensp;&ensp;[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3531&pause=1000&color=A92626&width=435&lines=I+believe+there+is+still+a+race+to+win.)](https://git.io/typing-svg)
 
 <!--
 **INSPECTOR-SEB/INSPECTOR-SEB** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
