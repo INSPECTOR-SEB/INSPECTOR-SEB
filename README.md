@@ -4,7 +4,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=3531&pause=1000&color=383DE4&width=500&lines=Tomorrow+belongs+to+those+;Who+shapes+today.)](https://git.io/typing-svg)
 <div align="center">  
   
-<img width="200" height="266" alt="HRq4nTKaUAA3EUZ" src="0f689ac12fbef5fa2c432a8c6da54775.jpg" /> <img width="200" height="266" alt="HRq4nTKaUAA3EUZ" src="16e2a5c9acd4983f4a6e2ded915e18dd.jpg" /> <img width="200" height="266" alt="HRq4nTKaUAA3EUZ" src="4a867ab7eb5364cacce5fb48e592212f.jpg" /> <img width="200" height="266" alt="HRq4nTKaUAA3EUZ" src="e20de93d0c651e3a087000e4548e15d3.jpg" />
+<img width="1421" height="487" alt="HRq4nTKaUAA3EUZ" src="Screenshot 2026-10-31 at 17.02.15.png" />
 <div align="right">  
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=3531&pause=1000&color=BE6121&width=435&lines=The+next+corner+is+in+good+hands;New+generation+has+already+turned+in)](https://git.io/typing-svg) &emsp;&emsp;&emsp;&emsp;
@@ -17,6 +17,8 @@
 
 <!--
 **INSPECTOR-SEB/INSPECTOR-SEB** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+<img width="200" height="266" alt="HRq4nTKaUAA3EUZ" src="0f689ac12fbef5fa2c432a8c6da54775.jpg" /> <img width="200" height="266" alt="HRq4nTKaUAA3EUZ" src="16e2a5c9acd4983f4a6e2ded915e18dd.jpg" /> <img width="200" height="266" alt="HRq4nTKaUAA3EUZ" src="4a867ab7eb5364cacce5fb48e592212f.jpg" /> <img width="200" height="266" alt="HRq4nTKaUAA3EUZ" src="e20de93d0c651e3a087000e4548e15d3.jpg" />
 
 Here are some ideas to get you started:
 
