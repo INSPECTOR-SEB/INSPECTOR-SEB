@@ -1,4 +1,4 @@
-&nbsp;&nbsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3531&pause=1000&color=A92626&width=435&lines=The+marks+I+left+on+track+stays;Until+time+and+rain+wash+them+away.&groups=1%2C1)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3531&pause=1000&color=A92626&width=435&lines=The+marks+I+left+on+track+stays;Until+time+and+rain+wash+them+away.&groups=1%2C1)](https://git.io/typing-svg)
 &emsp;&emsp;&emsp;[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3531&pause=1000&color=A92626&width=435&lines=The+next+corner+is+in+good+hands;New+generation+has+already+turned+in)](https://git.io/typing-svg)
 <div align="center">  
   
